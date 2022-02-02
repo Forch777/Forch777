@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Forch777
+- 👀 I’m interested in crypto nft and all conneted with it
+- 🌱 I’m currently learning how to prperly work with nodes
+- 💞️ I’m looking to collaborate on others who have the same intesrest
+- 📫 How to reach me telegramm: @karpeniayevhenii
+                     we chat  :  Forch_777 
+                                
+                      
+
+<!---
+Forch777/Forch777 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
